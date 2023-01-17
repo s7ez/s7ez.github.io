@@ -1,1 +1,1 @@
-## s7ez.github.io
+## https://s7ez.github.io
